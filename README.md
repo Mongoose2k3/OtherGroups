@@ -13,6 +13,9 @@
 
 # Neten Lies
 1. https://www.youtube.com/watch?v=g7cT3N4zQgE
+2. https://twitter.com/2XFnd/status/1732179877007159794 (tell leaders where the hell are you)
+3. https://www.youtube.com/watch?v=PHzSr52fZLQ (take Iraq and Saddam down, dictate the use of Power/Power/Power comparing to Real Estate Location/Location/Location)
+4. https://www.youtube.com/watch?v=rVPauUOVrmk
 
 
 # Biden Lies
