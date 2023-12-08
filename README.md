@@ -11,5 +11,9 @@
 2. https://www.youtube.com/watch?v=jQP-eKSk21U
 
 
-# Neten Crimes
+# Neten Lies
+1.
+# Biden Lies
 1. 
+
+
