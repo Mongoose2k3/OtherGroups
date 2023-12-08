@@ -12,7 +12,9 @@
 
 
 # Neten Lies
-1.
+1. https://www.youtube.com/watch?v=g7cT3N4zQgE
+
+
 # Biden Lies
 1. 
 
