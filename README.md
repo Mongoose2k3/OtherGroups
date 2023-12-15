@@ -1,5 +1,13 @@
 # OtherGroups
 
+# Jews for Palestine
+1. https://www.jewishvoiceforpeace.org
+2. https://jews4decolonization.wordpress.com
+3. https://twitter.com/jews4decolonize
+4. https://twitter.com/IJAN_Network
+5. http://www.ijan.org/uncategorized/jews-against-genocide-statement-and-action/
+
+## ??
 1. https://chat.whatsapp.com/JUDJ5NGyKS1JCeFsHXlTXc
 
 # Lawyers in Europe
