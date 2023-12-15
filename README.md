@@ -6,6 +6,7 @@
 3. https://twitter.com/jews4decolonize
 4. https://twitter.com/IJAN_Network
 5. http://www.ijan.org/uncategorized/jews-against-genocide-statement-and-action/
+6. https://www.visualizingpalestine.org/
 
 ## ??
 1. https://chat.whatsapp.com/JUDJ5NGyKS1JCeFsHXlTXc
