@@ -1,12 +1,17 @@
 # OtherGroups
 
 # Jews for Palestine
+## Jewish Voice for Peace JVP
 1. https://www.jewishvoiceforpeace.org
-2. https://jews4decolonization.wordpress.com
-3. https://twitter.com/jews4decolonize
-4. https://twitter.com/IJAN_Network
-5. http://www.ijan.org/uncategorized/jews-against-genocide-statement-and-action/
-6. https://www.visualizingpalestine.org/
+2. https://twitter.com/jvplive
+## Jews 4 Decolonization
+1. https://jews4decolonization.wordpress.com
+5. https://twitter.com/jews4decolonize
+## IJAN
+1. https://twitter.com/IJAN_Network
+8. http://www.ijan.org/uncategorized/jews-against-genocide-statement-and-action/
+## Other
+1. https://www.visualizingpalestine.org/
 
 ## ??
 1. https://chat.whatsapp.com/JUDJ5NGyKS1JCeFsHXlTXc
