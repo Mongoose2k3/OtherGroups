@@ -14,6 +14,10 @@
 1. https://www.visualizingpalestine.org/
 
 ## ??
+1. https://sabilinow.com/allstories
+2. https://www.adalah.org/en/law/index
+
+## ??
 1. https://chat.whatsapp.com/JUDJ5NGyKS1JCeFsHXlTXc
 
 # Lawyers in Europe
